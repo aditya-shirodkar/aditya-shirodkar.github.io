@@ -1,1 +1,0 @@
-# aditya-shirodkar.github.io
